@@ -1,0 +1,9 @@
+scdcsc
+scs
+cs
+cs
+cs
+cs
+c
+sc
+s
